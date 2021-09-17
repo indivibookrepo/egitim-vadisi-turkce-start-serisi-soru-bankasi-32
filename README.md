@@ -1,0 +1,1 @@
+# egitim-vadisi-turkce-start-serisi-soru-bankasi-32
